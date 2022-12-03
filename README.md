@@ -5,6 +5,7 @@
 https://user-images.githubusercontent.com/1629785/205435331-2eef9c69-4343-4ad8-bd68-c23213102647.mp4
 
 
+Tutorial: https://twitter.com/jnybgr/status/1598983409367683072?s=46&t=ypuvP7oiq3P8ylBD1avKcQ
 
 Welcome to your Remotion project!
 
